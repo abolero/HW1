@@ -1,2 +1,0 @@
-Andrew Bolero
-Chicago Cubs
